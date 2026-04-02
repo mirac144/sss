@@ -34,5 +34,7 @@
 
 ## BAĞLANTILAR ##
 
+https://g.co/gemini/share/58fdd8ac53ef
+
 1. https://drive.google.com/drive/folders/1cVvMLxNk6uqWiNBkght2exO-JHGVWQkD
    
